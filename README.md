@@ -1,4 +1,4 @@
-I’m @Brantyyn
+I’m @quadex [Branton Maungu]
 - Crypto
 - Blockchain
 - Web3
